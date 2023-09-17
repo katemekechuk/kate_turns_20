@@ -1,46 +1,46 @@
 # September 16, 2023: A 20th Birthday Bash
 
 <img src="https://user-images.githubusercontent.com/140675087/268518536-21ae2d4f-79be-4aeb-8991-16db6913720c.JPG" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/15e03da1-298d-4acd-b472-dd4ddaef4948" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518537-c5b12dee-b686-46c6-8280-c031438ca951.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/d86757ea-8e91-4456-960f-5bf213339783" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/d3931711-0cf9-4505-a113-250fa9af074a" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518538-822e2195-1455-4a75-977c-57b38bcec9be.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518539-c7460d37-0bfe-4d3e-a22a-da2a55b28539.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/8bd28676-a904-41c5-b720-d4c65de3280e" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/645d672f-f4ca-4934-9058-873f84b340c8" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518541-601b62d7-7ced-43bb-8bd9-1acf054456cd.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518544-88859d73-daec-4704-9bbd-6704d1d0aedb.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/3f149114-295f-40f6-9b43-2b1c77cd9133" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/3430e8d7-2a9a-4aff-a80a-fcaaf9fec706" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518546-0dee2b2d-84a9-48ad-bd83-4695a0e7bbcc.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518547-e6cfbbbb-1062-4c15-92bd-9fd5ac5049be.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/6b4c6d09-6c3e-4e63-8e8e-d39a1c405356" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/9f8dfd4e-0570-46ae-b3ae-7dc1bc2f201b" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518548-53034959-9e89-4f22-a2ad-bc28f86c201d.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518549-3216ffcf-2392-4fa3-b66b-569ecd84a83c.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/080d00d5-9d4c-4a45-8d24-e175fc96749d" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/97102cdd-41f5-4993-b7e0-567d5180ad0e" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518550-62eb9fa0-83a1-40d5-b62e-6627ec1cbdec.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518552-2a151023-692c-455b-b000-ff240d0f5711.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/b6311014-7788-455e-8a40-2486c49e7148" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/92174131-0e1f-44b2-a329-09216b7c4eb2" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518554-fa3f1353-40fb-4bc5-b0d7-8cc6703b6c07.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518555-5e35e1e0-5c79-45eb-be0b-846450279d36.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/72a3cff0-5702-4441-89f3-be25c1e8c072" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/dcd57000-9f20-4d25-92ee-3a33bc456ef1" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518557-ef3781b0-1315-44e1-8b16-127c05b57589.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518559-f94e2866-c0df-4391-b0dc-4035bb42ffef.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/91c1d132-c514-4792-ba91-8fc16b36508a" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/a1cc0705-ffde-4b2e-99d0-7e372d0ef88c" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518560-eee22b39-6707-412f-ace4-1b25d9de15b1.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518561-fc81eaee-5809-41be-b09d-3b2f40e1e644.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/d9426924-4fb7-49bb-af56-cbfa79d8aa42" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/4b23758b-02ef-491c-bdb4-e608a000cce3" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518562-d1122240-2a86-49d0-b44c-29bc9dbd3c5d.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518563-aa312608-d64d-409b-b77b-8e7bd066a911.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/2cfd878e-b083-40ea-9250-b900995630a8" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/3adce60c-6f60-4160-9b59-1e6752bff143" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518564-30a0d3fb-683f-40b2-96d0-fb8b4f7fb915.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518565-64e15e5b-11d3-406f-8330-3dffe6b30975.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/07c2197e-f8bd-4807-ae66-f776b9027bd8" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/f9f82897-d225-4155-b6d0-a5eb6de2d45d" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518566-3f8b1a2c-8ff0-4407-aa2b-b5c3ff15dbbc.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518567-40bb1128-5d3d-44c1-b134-385b4b47071b.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/7e049b24-dbfa-45ac-a968-3a08e4a81459" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/10115ee3-4ed2-4c52-bd44-c306814d7d4b" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518568-5fb84429-2615-43c7-bd9a-9acde58c34e7.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518570-1bcb3f6f-071c-4e70-a0d7-788abde655c4.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/f9ed248f-ae92-40e4-8b27-68b03dfd39d3" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/393057b6-4b0f-4580-a193-717dff40b745" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518571-8ee9ac11-2507-4bd1-b17b-c10fa1b3c41d.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518573-ed3403f3-5170-45b3-85f4-7e65362c4c0d.JPG" width="400"/>
 
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/bc38f0cc-e7bc-4d58-9c1f-a54860130f08" width="400"/>
-<img src="https://github.com/katemekechuk/kate_turns_20/assets/140675087/5ff4cc12-bfb6-453c-8526-6004f581a2ed" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518575-8ae3dc91-bed0-41b9-a202-0495c80b52f0.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518579-217b0696-a707-468f-be02-91aacebacd3a.JPG" width="400"/>
