@@ -1,2 +1,2 @@
-# kate_turns_20
-pictures from 09.16.2023
+# September 16, 2023 
+# a party on 110th street
