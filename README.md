@@ -1,7 +1,6 @@
 # September 16, 2023: A 20th Birthday Bash
 
-<img src="https://user-images.githubusercontent.com/140675087/268518536-21ae2d4f-79be-4aeb-8991-16db6913720c.JPG" width="400"/>
-<img src="https://user-images.githubusercontent.com/140675087/268518537-c5b12dee-b686-46c6-8280-c031438ca951.JPG" width="400"/>
+<img src="https://user-images.githubusercontent.com/140675087/268518536-21ae2d4f-79be-4aeb-8991-16db6913720c.JPG" width="400"/> <img src="https://user-images.githubusercontent.com/140675087/268518537-c5b12dee-b686-46c6-8280-c031438ca951.JPG" width="400"/>
 
 <img src="https://user-images.githubusercontent.com/140675087/268518538-822e2195-1455-4a75-977c-57b38bcec9be.JPG" width="400"/>
 <img src="https://user-images.githubusercontent.com/140675087/268518539-c7460d37-0bfe-4d3e-a22a-da2a55b28539.JPG" width="400"/>
